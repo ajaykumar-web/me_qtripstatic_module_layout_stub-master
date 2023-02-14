@@ -1,8 +1,0 @@
-# me_qtripstatic_module_layout_stub-master
-# me_qtripstatic_module_layout_stub-master
-# me_qtripstatic_module_layout_stub-master
-# me_qtripstatic_module_layout_stub-master
-# me_qtripstatic_module_layout_stub-master
-# me_qtripstatic_module_layout_stub-master
-# me_qtripstatic_module_layout_stub-master
-# me_qtripstatic_module_layout_stub-master
